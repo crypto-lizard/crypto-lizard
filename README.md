@@ -1,6 +1,7 @@
 -HII im lizard 👅          
 -im pretty weird at first but i swear im a good person..            
--i sit with any1 i find cool              
+-i sit with any1 i find cool    
+-im pretty new to github..ask for dc btw ;-;                  
 -i LOVE arthur morgan, antis dni 👿               
 -rdr2 fans interact PSLPSLSPLSSLSPSLSPS       
 
